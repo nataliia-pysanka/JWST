@@ -1,4 +1,4 @@
-# [Джеймс Вебб](https://uk.wikipedia.org/wiki/Джеймс_Вебб_(телескоп)#cite_note-3) (телескоп)
+# [Джеймс Вебб](https://uk.wikipedia.org/wiki/Джеймс_Вебб_(телескоп)) (телескоп)
 
 ![Джеймс Вебб](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/2294_Mission_Posters_Webb_English-1200.jpg/300px-2294_Mission_Posters_Webb_English-1200.jpg "телескоп")
 
